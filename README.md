@@ -3,8 +3,9 @@
 - 🌱 I’m currently learning but expert
 - 💞️ I’m looking to collaborate on you for the money
 - 📫 How to reach me by money 
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- 😄 Pronouns: ...naa#33^
+- ⚡ Fun fact: ...yp#*--
+- I am expert in data graphical codings 
 
 <!---
 github444jii/github444jii is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
